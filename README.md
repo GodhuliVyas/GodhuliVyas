@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GodhuliVyas
 - 👀 I’m interested in exploring new Technology.
-- 🌱 I’m currently learning Blockchain.
+- 🌱 I’m currently learning Web3/Cybersecurity.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I am ready for a live music concert. I think I sing well!!
 
